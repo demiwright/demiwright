@@ -1,11 +1,12 @@
 ### Hi there 👋
 ​Hi, I'm @DemiWright ! I'm an executive assistant at GitHub!✨
-- 🔭 I’m currently working on getting onboareded and joining thr CELA Team!
+- 🔭 I’m currently working on getting onboarded and joining thr CELA Team!
 - 🌱 I’m currently learning so many new things! :)
 - 💬 Ask me about my kids! 
 - 📫 How to reach me: @demiwright or demiwright@github.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I live in a rural little town snuggled between Sacramento & Lake Tahoe!
+- ![Family Photo](IMG_4785.jpg)
 <!--
 **demiwright/demiwright** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
