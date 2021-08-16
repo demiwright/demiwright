@@ -1,6 +1,6 @@
 ### Hi there 👋
 ​Hi, I'm @DemiWright ! I'm an executive assistant at GitHub!✨
-- 🔭 I’m currently working on getting onboarded and joining the CELA Team!
+- 🔭 I’m currently working on all things CELA!
 - 🌱 I’m currently learning so many new things! :)
 - 💬 Ask me about my kids! 
 - 📫 How to reach me: @demiwright or demiwright@github.com
