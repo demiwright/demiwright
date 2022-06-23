@@ -1,5 +1,5 @@
 ### Hi there 👋
-​Hi, I'm @DemiWright ! I'm an executive assistant at GitHub!✨
+​Hi, I'm @DemiWright ! I'm a business manager at GitHub!✨
 - 🔭 I’m currently working on all things CELA!
 - 🌱 I’m currently learning so many new things! :)
 - 💬 Ask me about my kids! 
