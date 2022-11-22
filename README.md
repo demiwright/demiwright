@@ -2,6 +2,6 @@
 ​Hi, I'm @DemiWright ! I'm the CELA business manager at GitHub!✨
 - 📫 How to reach me: @demiwright or demiwright@github.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: Find me on Peloton @ BoyMama209 
-- ![Family Photo](https://user-images.githubusercontent.com/83684841/122442734-bb819900-cf53-11eb-8d0c-21bf2f85ad55.jpg)
-)
+- ⚡ Fun facts: I have two sons, Vincent & Enzo. I LOVE a good home remodel. I am training for the Big Sur 2023 Marathon on the National Brain Tumor Society Team. Find me on Peloton @BoyMama209 
+- ![Family Photo](https://user-images.githubusercontent.com/83684841/203440251-a59ef452-72e4-4804-abcf-244eaac8ac96.jpg)
+ 
